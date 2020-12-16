@@ -1,1 +1,1 @@
-http://medlab.pro/
+https://zhd.online/
